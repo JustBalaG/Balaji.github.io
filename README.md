@@ -1,1 +1,1 @@
-# JustBalaG.github.io
+# justbalag.github.io
